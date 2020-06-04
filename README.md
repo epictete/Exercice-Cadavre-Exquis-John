@@ -1,2 +1,2 @@
 # Exercice-Cadavre-Exquis-John
-Cadavre exquis
+C'est l'histoire d'un *petit* homme **poilu**.
