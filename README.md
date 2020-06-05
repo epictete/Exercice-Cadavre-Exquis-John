@@ -18,3 +18,9 @@ Il se renda donc avec hâte aux urgences.
 Mais on lui a rit au nez:
 
 > *d'ou sort tu commme ça ? Tes poils ont autant pousser pendant le confinement?* 
+
+Etant donné que je suis poilu depuis mes 12ans, je sais 
+en rire maintenant. J ai donc répondu:
+
+> Oui, je voulais voir si je pouvais battre un record et 
+entrer dans le Guinness World Records 2020.
